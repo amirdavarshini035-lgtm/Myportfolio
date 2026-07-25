@@ -284,7 +284,7 @@ Send Email
 
 <p>
 
-© 2026 Akila S | All Rights Reserved
+© 2026 Amirdavarshini D | All Rights Reserved
 
 </p>
 
